@@ -19,3 +19,14 @@ Here are some of my favorite restaurants and food vendors that I highly recommen
 | Cafe Bahar     | Offers authentic Mughalai Biryani with a cozy ambiance. | 456 Old MLA Quarters, Hyderabad |
 | Shah Ghouse      |  Offers Punjabi Chicken Biryani and an impressive variety of Sizzlers. | Near ORR, Gachibowli |
 | Kshthriya Foods  | Great plant-based options and creative dishes. | ASR Nagar, Bhimavaram |
+
+
+---
+
+## Favorite Jokes:
+
+> "Money cannot buy happiness."  
+> _by Anonymous__
+
+> "You can’t trust atoms. They make up everything!"  
+> _by Anonymous_
